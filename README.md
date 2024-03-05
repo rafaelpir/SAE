@@ -31,11 +31,3 @@ Nous sommes ouverts à vos commentaires et suggestions. N'hésitez pas à nous f
 Merci encore pour votre intérêt et votre confiance.
 
 L'équipe de Location de Véhicules
-# SAE
-# SAE
-# SAE
-# SAE
-# SAE
-# SAE
-# SAE
-# SAE
